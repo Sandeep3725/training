@@ -1,2 +1,2 @@
 # training
-vajrala sai sandeep
+vajrala sai
