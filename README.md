@@ -1,2 +1,2 @@
 # training
-vajrala sai sandeep reddy
+vajrala sai sandeep
